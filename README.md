@@ -1,1 +1,0 @@
-# PowerPoleOD_Image
